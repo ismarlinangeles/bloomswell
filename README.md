@@ -1,0 +1,1 @@
+This website is the official online presence for BloomsWell Goods, a personal care and hygiene brand focused on thoughtfully selected everyday essentials. The site is designed to provide clear brand information, values, and easy access to trusted products.
